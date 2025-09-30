@@ -1,8 +1,4 @@
 ## Hi there 👋,I'm Faksz
-
-## My Waifu
-
-![alt text](https://qu.ax/TuvAg.jpg?raw=true)
 <!--
 **Faksz212/Faksz212** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
