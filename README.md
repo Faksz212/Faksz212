@@ -2,7 +2,7 @@
 
 ## My Waifu
 
-![alt text](https://pin.it/6kweRSq3E?raw=true)
+![alt text](https://qu.ax/TuvAg.jpg?raw=true)
 <!--
 **Faksz212/Faksz212** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
